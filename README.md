@@ -28,7 +28,7 @@
 >
 > any who supports zeal/pressure in general will be blocked.
 >
-> attempting to roleplay with an headmate who is an fictive of the character from the source you like will be ignored.
+> attempting to roleplay with an headmate who is an fictive of a character from the source you like will be ignored.
 >
 > syscourse will be ignored or blocked.
 >

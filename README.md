@@ -34,5 +34,7 @@
 >
 > treating an headmate who is an fictive as their source will be ignored.
 >
+> any who flirts with our co-host tenna, or any headmate in general will be ignored or blocked if they continue.
+>
 > problematic introjects/fictives will be blocked. keep that shit in headspace. :sob:
 ***

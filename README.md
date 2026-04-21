@@ -7,10 +7,12 @@
 > use to go by calamity/entertain.
 >
 > we collectively go by any pronouns.
+>
+> socially awkward.
+> 
+> mental disorders & severe mental issues, personal questions will be ignored.
 ***
 > [!NOTE]
 > please note that *some* headmates dont give any information and wants to stay anonymous.
->
-> mostly socially awkward.
 >
 > headmates can come off as rude, sensitive, nonverbal or verbal. etc.

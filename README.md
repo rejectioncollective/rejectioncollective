@@ -4,6 +4,13 @@
 > [!IMPORTANT]
 > previously known as the entertainment system.
 > 
-> formerly went by calamity/entertain.
+> use to go by calamity/entertain.
 >
-> we all collectively go by any pronouns.
+> we collectively go by any pronouns.
+***
+> [!NOTE]
+> please note that *some* headmates dont give any information and wants to stay anonymous.
+>
+> mostly socially awkward.
+>
+> headmates can come off as rude, sensitive, nonverbal or verbal. etc.

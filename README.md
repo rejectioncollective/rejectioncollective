@@ -6,6 +6,8 @@
 > 
 > use to go by calamity/entertain.
 >
+> names : reject/prism/nicknames.
+>
 > we collectively go by any pronouns.
 >
 > socially awkward.

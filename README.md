@@ -16,3 +16,21 @@
 > please note that *some* headmates dont give any information and wants to stay anonymous.
 >
 > headmates can come off as rude, sensitive, nonverbal or verbal. etc.
+>
+> we switch between plural and single terms.
+***
+> [!CAUTION]
+> any ex friends or ex partners will be blocked.
+>
+> any people we've had bad terms with will be blocked.
+>
+> any who supports zeal/pressure in general will be blocked.
+>
+> attempting to roleplay with an headmate who is an fictive of the character from the source you like will be ignored.
+>
+> syscourse will be ignored or blocked.
+>
+> treating an headmate who is an fictive as their source will be ignored.
+>
+> problematic introjects/fictives will be blocked. keep that shit in headspace. :sob:
+***
